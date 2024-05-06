@@ -1,5 +1,5 @@
-Antonia Rizzo
-Spencer Hicklin
+Antonia Rizzo /n
+Spencer Hicklin /n
 Katie Eckhardt
 Amelia Troyer
 Rosa Henson
